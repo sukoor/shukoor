@@ -1,1 +1,0 @@
-# shukoor.github.io
